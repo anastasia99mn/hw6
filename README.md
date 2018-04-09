@@ -69,7 +69,7 @@
 
 3. https://github.com/anastasia99mn/hw6/blob/master/screen6.jpg
 
-
+https://github.com/anastasia99mn/hw6/blob/master/screen7.jpg
 
 
 
